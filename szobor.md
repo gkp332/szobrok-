@@ -73,6 +73,29 @@ A szobor fenntartása és a hozzá kapcsolódó események segítenek abban, hog
 Térkép és irány: 
 ![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
 
+#### 4 szobor
+##### pilisi címer (szobor)
+
+##### története: 
+ A Pilisi Címer szobor egy jelentős emlékmű, amely a település helyi identitását, történelmét és kulturális örökségét hivatott megörökíteni. A szobor a Pilis település címerét ábrázolja, és annak a közösségnek a büszkeségét, amely hosszú évszázadokon keresztül élte és ápolta a helyi hagyományokat. A település címerének elhelyezése szimbolikus jelentőségű, mivel a település történelmét, hősiességét és közösségi összetartozását kívánja kifejezni.
+
+A szobor a település központi helyén, jól láthatóan található, így mindenki számára elérhető és tiszteletteljes emléket állít a település múltjának. Az emlékmű egyben a helyi önkormányzati szimbólum is, amely a közösségi összetartozás és a település önállóságának fontosságát is hangsúlyozza. A Pilisi Címer szobor rendkívül fontos szerepet játszik a település identitásának megőrzésében, mivel a címerek és azok története mindig a közösség értékeit és múltját tükrözik.
+
+A Pilisi Címer sajátos szimbolikát hordoz, amely a település különleges helyét és jelentőségét emeli ki a környező térségben. A címer a helyi történelem és hagyományok egyfajta összegzése, amelyet a helyi közösség évszázadokon keresztül alakított. A címer maga a közösség erejét, szellemiségét és összetartozását jelképezi, és az emlékmű arra szolgál, hogy minden generáció számára megőrizze a múltat.
+
+A szobor nemcsak a település identitásának szimbóluma, hanem a közösségi rendezvények és ünnepségek helyszínéül is szolgál. A helyi ünnepségek, mint például a település napja vagy más nemzeti megemlékezések, gyakran a szobor környékén zajlanak, ahol a helyiek összegyűlnek, hogy együtt tisztelegjenek a település múltja előtt. A Pilisi Címer szobor tehát nemcsak egy művészeti alkotás, hanem egy élő és fontos része a település mindennapi életének és kulturális örökségének.
+
+A szobor által képviselt hagyományok és szimbólumok megerősítik a közösség összetartását, és segítenek megőrizni a település történelmi értékeit a jövő számára. A címer szobor a település lakóinak identitását és összetartozását szimbolizálja, és emlékeztet arra, hogy a helyi közösség ereje és jövője a múlt tiszteletén alapul.
+
+#### szobor kép: 
+![image](https://github.com/user-attachments/assets/b097e48b-ca85-40f6-bd68-54fc4e143204)
+
+
+
+
+
+
+
 
 
 
