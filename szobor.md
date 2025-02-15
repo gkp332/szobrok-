@@ -90,6 +90,20 @@ A szobor által képviselt hagyományok és szimbólumok megerősítik a közös
 #### szobor kép: 
 ![image](https://github.com/user-attachments/assets/b097e48b-ca85-40f6-bd68-54fc4e143204)
 
+### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
+
+Térkép és irány:
+![2025-02-15 (4)](https://github.com/user-attachments/assets/e59268de-ccdd-4bf0-9892-383c99f572a1)
+
+## Források: 
+
+1 https://hu.wikipedia.org/wiki/Sz%C3%A9chenyi_Istv%C3%A1n
+2 https://www.kozterkep.hu/38252 ˙(pilis története könyv)
+3 https://hu.wikipedia.org/wiki/Pet%C5%91fi_S%C3%A1ndor (pilis története könyv)
+4(pilis története könyv) (nincs lejegyzés)
+
+
+
 
 
 
