@@ -98,10 +98,27 @@ Térkép és irány:
 ## Források: 
 
 1 https://hu.wikipedia.org/wiki/Sz%C3%A9chenyi_Istv%C3%A1n
+
 2 https://www.kozterkep.hu/38252 ˙(pilis története könyv)
+
 3 https://hu.wikipedia.org/wiki/Pet%C5%91fi_S%C3%A1ndor (pilis története könyv)
+
 4(pilis története könyv) (nincs lejegyzés)
 
+
+
+## térkép Források útvonal: 
+
+1 szobor: ![2025-02-15 (9)](https://github.com/user-attachments/assets/f8b41938-f6e7-48cc-a84e-fe8b34f2f61c)
+
+
+2 szobor:![2025-02-15 (11)](https://github.com/user-attachments/assets/83ba06b7-4c54-41c0-aa5e-84684ab0db75)
+
+
+3 szobor:![2025-02-15 (10)](https://github.com/user-attachments/assets/1d22845c-6d17-44c7-b551-4d61eb0660b6)
+
+
+4 szobor: ![2025-02-15 (12)](https://github.com/user-attachments/assets/8955aae5-7c98-4d25-a704-18ae6d0f3ace)
 
 
 
