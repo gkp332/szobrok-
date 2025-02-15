@@ -45,7 +45,11 @@ Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólum
 #### szobor kép:
 ![image](https://github.com/user-attachments/assets/cc5a8552-90fc-46cc-8634-e1f7527ea010)
 
-#### nemezetesség körülötte: 
+#### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
+
+Térkép és irány:
+![2025-02-15 (3)](https://github.com/user-attachments/assets/a47e16bd-eabe-4b68-b650-c43aaee30c33)
+
 
 
 
