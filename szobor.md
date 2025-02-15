@@ -93,6 +93,7 @@ A szobor által képviselt hagyományok és szimbólumok megerősítik a közös
 ### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
 
 Térkép és irány:
+
 ![2025-02-15 (4)](https://github.com/user-attachments/assets/e59268de-ccdd-4bf0-9892-383c99f572a1)
 
 ## Források: 
