@@ -50,6 +50,30 @@ Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólum
 Térkép és irány:
 ![2025-02-15 (3)](https://github.com/user-attachments/assets/a47e16bd-eabe-4b68-b650-c43aaee30c33)
 
+##### 3 szobor 
+##### Petőfi szobor
+
+###### története:
+
+A Pilis településén található Petőfi-szobor szintén egy fontos emlékmű, amely a magyar történelem és kultúra egyik legkiemelkedőbb alakját, Petőfi Sándort, a híres költőt és forradalmárt idézi meg. Petőfi Sándor az 1848-as forradalom egyik meghatározó személyisége volt, aki költészetével és politikai szerepvállalásával óriási hatást gyakorolt a magyar nemzet lelki és politikai életére. A Pilisi Petőfi-szobor célja, hogy tisztelegjen előtte és örökítse meg azt a szellemiséget, amit Petőfi képviselt.
+
+A szobor valószínűleg a kommunista időszakban vagy azt követően épült, hogy az ilyen jellegű emlékművek és a nemzeti hőseink iránti tisztelet ápolása az egész országban folytatódjon. A szobrot a helyi közösség adományozta, és mindmáig fontos szerepe van a település kulturális életében. Az alkotás Petőfi alakját örökíti meg, gyakran szoktak megemlékezéseket tartani mellette, különösen március 15-én, az 1848-as forradalom évfordulóján, amikor Petőfi Sándor forradalmi szerepe és költészete kiemelkedő jelentőséggel bír.
+
+A szobor környéke a település szívében található, így könnyen hozzáférhető és számos látogató keresi fel. A Pilisi Petőfi-szobor nemcsak a költő és a forradalmár emléke előtt tiszteleg, hanem az 1848-49-es szabadságharc emlékét is őrzi. A település lakói számára ez az emlékmű egy jelképe annak a szabadságvágyó, nemzeti érzésnek, amit Petőfi képviselt.
+
+A Petőfi-szobor szoros kapcsolatban áll az egész település történelmi emlékeivel, és az emlékek ápolása fontos része a helyi közösségi eseményeknek. Az emlékmű nemcsak Petőfi Sándor művészetének és életének, hanem a magyar nemzet szabadságáért és függetlenségéért folytatott küzdelmeinek is méltó szimbóluma. A helyi ünnepségek és rendezvények alkalmával a szobor környéke gyakran megtelik azokkal, akik szeretnék tisztelettel adózni a költő öröksége előtt.
+
+A szobor fenntartása és a hozzá kapcsolódó események segítenek abban, hogy a település közössége megőrizze Petőfi Sándor és az 1848-as forradalom emlékét, és biztosítsák, hogy a jövő generációi számára is megmaradjon a nemzeti identitás és a hősiesség tisztelete.
+
+#### szobor kép:
+![image](https://github.com/user-attachments/assets/fa3e060d-46fd-43df-a210-c5e2aff8e43f)
+
+#### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
+
+Térkép és irány: 
+![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
+
+
 
 
 
