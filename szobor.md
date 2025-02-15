@@ -31,6 +31,22 @@ Széchenyi István öröksége ma is él Magyarországon. Munkássága, víziój
 Katona szobor: 
 
 Története:
+A Pilisi 2721 Katona szobor egy jelentős emlékmű, amely a Pilisi-hegység közelében, a település szélén található. Az emlékmű az első világháború és az 1944-45-ös második világháborús hősök emlékét őrzi. Az alkotás egy katona alakját formázza, aki a hősiességet és áldozatot szimbolizálja. A szobor célja, hogy tiszteletet adjon azoknak a katonáknak, akik életüket áldozták a háborúban. Az emlékmű az egész közösség számára jelentőséggel bír, mivel a település történelme és a háborús áldozatok emlékét őrzi.
+
+A szobor 1945 után készült, és a helyi közösség fontos szimbóluma lett. Az emlékmű alapítása összefonódik a második világháború és a helyi történelem eseményeivel, hiszen Pilis és a környékbeliek sokat szenvedtek a háború alatt. A szobrot a település lakói adományozták és kezdeményezték, hogy emlékezzenek meg azokról, akik a háborúban hősi halált haltak. Az emlékmű ezen keresztül nem csupán a háború áldozataira, hanem a közösség összetartására és hősiességére is emlékeztet.
+
+A Pilisi 2721 Katona szobor egy katonát ábrázol, akinek megformálása a magyar katonaság hősiességét és áldozatkészségét kívánja örökíteni. A szobor nemcsak a katonai erényeket, hanem a békéért való küzdelmet is szimbolizálja. Az emlékmű környékét sok túrázó és látogató keresi fel, mivel a környező táj gyönyörű, és a szobor magaslatról remek kilátás nyílik.
+
+A szobor története összefonódik a helyi közösség és a háborúval kapcsolatos traumák feldolgozásával. Az emlékmű évente számos megemlékezés helyszíne, ahol a helyiek és más látogatók tisztelettel hajtják meg fejüket a hősi halottak előtt. A szobor fenntartása és a hozzá kapcsolódó események segítenek megőrizni a történelmi emlékezetet és tiszteletet adni azoknak, akik életüket áldozták.
+
+Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólumává vált, és fontos szerepet játszik a település kulturális és történelmi örökségének ápolásában. Az emlékmű iránti tisztelet és a háborús áldozatok iránti megbecsülés mind a mai napig élő tradíció Pilis lakói körében, akik rendszeresen megemlékeznek a szobornál az elesett katonák hősiességéről.
+
+
+#### szobor kép:
+![image](https://github.com/user-attachments/assets/cc5a8552-90fc-46cc-8634-e1f7527ea010)
+
+#### nemezetesség körülötte: 
+
 
 
 
