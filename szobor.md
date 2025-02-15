@@ -121,6 +121,40 @@ Térkép és irány:
 4 szobor: ![2025-02-15 (12)](https://github.com/user-attachments/assets/8955aae5-7c98-4d25-a704-18ae6d0f3ace)
 
 
+#### nemezetességek  részletes leírás:
+1 
+A Ceglédi Magyarok Nagyasszonya Kápolna az egyik legismertebb vallási építmény a városban. Az 1700-as években épült barokk stílusban, és a magyar katolikus hitélet kiemelkedő szereplője. A kápolna nemcsak vallási központ, hanem a magyarok Nagyasszonya, Mária tiszteletére is épült, ami különös vallási jelentőséggel bír. Mária, mint a magyar nemzet védelmezője, mindig is fontos szerepet játszott a magyar nép történelmében, különösen a nehéz időszakokban, mint a török hódoltság vagy az osztrák uralom idején. A kápolna így nemcsak vallási hely, hanem a magyar nemzeti öntudat egyik kifejeződése is.
+
+ A Kossuth Múzeum Cegléd másik jelképévé vált, amely a magyar történelem egyik legkiemelkedőbb alakjának, Kossuth Lajosnak az emlékét őrzi. A múzeum egy olyan kulturális központ, ahol Kossuth Lajos életét és politikai munkásságát ismerhetjük meg, valamint betekintést nyerhetünk a magyar szabadságharc eseményeibe. Kossuth, aki 1848–49-ben a magyar függetlenségi harc vezetője volt, az egyik legfontosabb nemzeti hősünk. A múzeum segít abban, hogy a látogatók megértsék a szabadságharc céljait és azokat az eszméket, amelyek Kossuth Lajos életét vezették. Az intézmény nemcsak a politikai történelem fontos emlékhelye, hanem a helyi kultúra és közösségi élet meghatározó része is.
+
+Mind a Ceglédi Magyarok Nagyasszonya Kápolna, mind a Kossuth Múzeum nemcsak vallási és történelmi jelentőséggel bírnak, hanem a ceglédi közösség identitásának és nemzeti büszkeségének erősítésében is fontos szerepet játszanak. Ezek az építmények és intézmények összekapcsolják a múltat a jelennel, és segítenek abban, hogy a magyar nemzet történelme és hagyományai ne feledésbe merüljenek.
+
+
+2
+A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
+
+A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
+
+Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
+
+
+3  
+A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
+
+A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
+
+Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
+
+4 
+
+A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
+
+A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
+
+Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
+ 
+
+
 
 
 
