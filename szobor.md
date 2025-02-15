@@ -1,5 +1,5 @@
 #### 1 szobor 
-Gróf széchenyi istván
+Gróf Széchenyi István
 
 ### története:
 
