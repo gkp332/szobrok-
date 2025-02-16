@@ -97,7 +97,7 @@ Térkép és irány:
 ![2025-02-15 (4)](https://github.com/user-attachments/assets/e59268de-ccdd-4bf0-9892-383c99f572a1)
 
 ##### 5 szobor 
-Katona szobor: 
+## Katona szobor: 
 
 Története:
 A Pilisi 2721 Katona szobor egy jelentős emlékmű, amely a Pilisi-hegység közelében, a település szélén található. Az emlékmű az első világháború és az 1944-45-ös második világháborús hősök emlékét őrzi. Az alkotás egy katona alakját formázza, aki a hősiességet és áldozatot szimbolizálja. A szobor célja, hogy tiszteletet adjon azoknak a katonáknak, akik életüket áldozták a háborúban. Az emlékmű az egész közösség számára jelentőséggel bír, mivel a település történelme és a háborús áldozatok emlékét őrzi.
