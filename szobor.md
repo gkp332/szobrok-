@@ -70,7 +70,7 @@ A szobor fenntartása és a hozzá kapcsolódó események segítenek abban, hog
 
 #### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
 
-Térkép és irány: 
+### Térkép és irány: 
 ![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
 
 #### 4 szobor
@@ -117,7 +117,7 @@ Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólum
 
 #### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
 
-Térkép és irány:
+### Térkép és irány:
 ![2025-02-15 (3)](https://github.com/user-attachments/assets/a47e16bd-eabe-4b68-b650-c43aaee30c33)
 
 #### 6 szobor
@@ -141,13 +141,13 @@ A szobor fenntartása és a hozzá kapcsolódó események segítenek abban, hog
 
 #### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
 
-Térkép és irány: 
+### Térkép és irány: 
 ![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
 
 ##### 7 szobor
 ### Egyszer volt budán kutyavásár"
 
-#######  története:
+### története:
 A "Egyszer volt Budán kutyavásár" szobor Budapest egyik különleges és szellemes műalkotása, amely a főváros egyik történelmi helyszínén, a Batthyány utca 26. szám alatt található. A szobor a közismert magyar mondásra, „Egyszer volt Budán kutyavásár”, építkezik, amely a régi magyar közmondásokat, valamint a budapesti városi kultúrát idézi meg.
 
 A kifejezés eredeti jelentése arra utal, hogy valamikor Budán, a középkorban, a kutyavásár egy olyan esemény volt, ahol a kutyák adás-vételére került sor. Ez a vásár nemcsak a kutyák, hanem a hozzájuk kapcsolódó piacok és kereskedelmi szokások szimbóluma is volt. Az idő múlásával azonban a mondás jelentése átformálódott, és szólásként használják akkor, amikor a dolgok zűrzavarról, vagy egy rendezetlen helyzetről van szó.
@@ -164,8 +164,28 @@ Budapest ezen szobra nem csupán egy művészeti alkotás, hanem egy szellemes t
 
 ##### nemezetesség körülötte: Abdurrahman pasa síremléke, Magyar Pénzmúzeum és Látogatóközpont
 
-térkép és irány: 
+#### térkép és irány: 
 ![2025-02-16](https://github.com/user-attachments/assets/0d479cc0-4d69-4e05-a168-9e6902e5061b)
+
+#### 8 szobor
+#### szomorú tank szobor
+
+##### története:
+A "Szomorú tank miniszobor" Kolodko művész egyik legismertebb és leginkább megosztó alkotása, amely Budapest belvárosában található, és számos mélyebb gondolatot ébreszt a látogatóban. Kolodko, aki a kis miniszobrok mestere, gyakran használja műveiben a szimbolizmus és irónia keverékét, hogy társadalmi és politikai üzeneteket közvetítsen. A "Szomorú tank" kifejezetten erőteljes üzenetet hordoz, amely a háború és a pusztítás keserű valóságát ábrázolja egy apró, de rendkívül kifejező formában.
+
+A szobor egy kis, rozsdás tankot ábrázol, amely szemmel láthatóan el van gyötörve, mintha a háború és az erőszak terhei nyomasztanák. A "szomorúság" kifejezés itt nem csupán egy érzelmi állapotot sugall, hanem arra is utal, hogy a háború nem csupán a háborúskodók, hanem az egész társadalom számára pusztító hatású. A tank, mint a háború egyik legismertebb szimbóluma, Kolodko művében nem dicsőíti a harcot, hanem annak következményeit és a háborúval kapcsolatos tragikus érzéseket ábrázolja.
+
+A miniszobor mérete különösen figyelemre méltó, hiszen egy kis, szinte észrevétlenül elhelyezett alkotásról van szó, amely a nagyvárosi környezetben szinte elbújik. Ezáltal a művész arra is felhívja a figyelmet, hogy a háborúval kapcsolatos traumák és emlékek gyakran rejtve maradnak a társadalom szem elől, és csak azok számára érhetők el, akik hajlandóak közelebb lépni és szembenézni a történelmünkkel.
+
+A "Szomorú tank" tehát nemcsak egy szobor, hanem egy erőteljes társadalmi kommentár, amely arra ösztönzi a nézőt, hogy gondolkodjon el a háborúval, erőszakkal és azok hatásaival kapcsolatos kérdéseken. Kolodko művészete egyszerre szomorú és gondolkodtató, emlékeztetve minket arra, hogy a történelem sötétebb fejezetei nem felejtődhetnek el, és hogy a múlt traumáit soha nem szabad figyelmen kívül hagyni.
+
+### szobor kép: 
+![image](https://github.com/user-attachments/assets/2c768415-b2c9-4924-9d22-07dc3ab9e562)
+
+### nemezetesség körülötte: Népművészeti Egyesületek Szövetsége, Budapesti Történeti Múzeum / Vármúzeum
+
+### térkép és irány: 
+
 
 
 
