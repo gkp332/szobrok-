@@ -96,6 +96,271 @@ Térkép és irány:
 
 ![2025-02-15 (4)](https://github.com/user-attachments/assets/e59268de-ccdd-4bf0-9892-383c99f572a1)
 
+##### 5 szobor 
+Katona szobor: 
+
+Története:
+A Pilisi 2721 Katona szobor egy jelentős emlékmű, amely a Pilisi-hegység közelében, a település szélén található. Az emlékmű az első világháború és az 1944-45-ös második világháborús hősök emlékét őrzi. Az alkotás egy katona alakját formázza, aki a hősiességet és áldozatot szimbolizálja. A szobor célja, hogy tiszteletet adjon azoknak a katonáknak, akik életüket áldozták a háborúban. Az emlékmű az egész közösség számára jelentőséggel bír, mivel a település történelme és a háborús áldozatok emlékét őrzi.
+
+A szobor 1945 után készült, és a helyi közösség fontos szimbóluma lett. Az emlékmű alapítása összefonódik a második világháború és a helyi történelem eseményeivel, hiszen Pilis és a környékbeliek sokat szenvedtek a háború alatt. A szobrot a település lakói adományozták és kezdeményezték, hogy emlékezzenek meg azokról, akik a háborúban hősi halált haltak. Az emlékmű ezen keresztül nem csupán a háború áldozataira, hanem a közösség összetartására és hősiességére is emlékeztet.
+
+A Pilisi 2721 Katona szobor egy katonát ábrázol, akinek megformálása a magyar katonaság hősiességét és áldozatkészségét kívánja örökíteni. A szobor nemcsak a katonai erényeket, hanem a békéért való küzdelmet is szimbolizálja. Az emlékmű környékét sok túrázó és látogató keresi fel, mivel a környező táj gyönyörű, és a szobor magaslatról remek kilátás nyílik.
+
+A szobor története összefonódik a helyi közösség és a háborúval kapcsolatos traumák feldolgozásával. Az emlékmű évente számos megemlékezés helyszíne, ahol a helyiek és más látogatók tisztelettel hajtják meg fejüket a hősi halottak előtt. A szobor fenntartása és a hozzá kapcsolódó események segítenek megőrizni a történelmi emlékezetet és tiszteletet adni azoknak, akik életüket áldozták.
+
+Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólumává vált, és fontos szerepet játszik a település kulturális és történelmi örökségének ápolásában. Az emlékmű iránti tisztelet és a háborús áldozatok iránti megbecsülés mind a mai napig élő tradíció Pilis lakói körében, akik rendszeresen megemlékeznek a szobornál az elesett katonák hősiességéről.
+
+
+#### szobor kép:
+![image](https://github.com/user-attachments/assets/3d775c49-d524-41f7-a420-7f62fc0f2412)
+
+
+#### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
+
+Térkép és irány:
+![2025-02-15 (3)](https://github.com/user-attachments/assets/a47e16bd-eabe-4b68-b650-c43aaee30c33)
+
+#### 6 szobor
+##### Petőfi szobor
+
+###### története:
+
+A Pilis településén található Petőfi-szobor szintén egy fontos emlékmű, amely a magyar történelem és kultúra egyik legkiemelkedőbb alakját, Petőfi Sándort, a híres költőt és forradalmárt idézi meg. Petőfi Sándor az 1848-as forradalom egyik meghatározó személyisége volt, aki költészetével és politikai szerepvállalásával óriási hatást gyakorolt a magyar nemzet lelki és politikai életére. A Pilisi Petőfi-szobor célja, hogy tisztelegjen előtte és örökítse meg azt a szellemiséget, amit Petőfi képviselt.
+
+A szobor valószínűleg a kommunista időszakban vagy azt követően épült, hogy az ilyen jellegű emlékművek és a nemzeti hőseink iránti tisztelet ápolása az egész országban folytatódjon. A szobrot a helyi közösség adományozta, és mindmáig fontos szerepe van a település kulturális életében. Az alkotás Petőfi alakját örökíti meg, gyakran szoktak megemlékezéseket tartani mellette, különösen március 15-én, az 1848-as forradalom évfordulóján, amikor Petőfi Sándor forradalmi szerepe és költészete kiemelkedő jelentőséggel bír.
+
+A szobor környéke a település szívében található, így könnyen hozzáférhető és számos látogató keresi fel. A Pilisi Petőfi-szobor nemcsak a költő és a forradalmár emléke előtt tiszteleg, hanem az 1848-49-es szabadságharc emlékét is őrzi. A település lakói számára ez az emlékmű egy jelképe annak a szabadságvágyó, nemzeti érzésnek, amit Petőfi képviselt.
+
+A Petőfi-szobor szoros kapcsolatban áll az egész település történelmi emlékeivel, és az emlékek ápolása fontos része a helyi közösségi eseményeknek. Az emlékmű nemcsak Petőfi Sándor művészetének és életének, hanem a magyar nemzet szabadságáért és függetlenségéért folytatott küzdelmeinek is méltó szimbóluma. A helyi ünnepségek és rendezvények alkalmával a szobor környéke gyakran megtelik azokkal, akik szeretnék tisztelettel adózni a költő öröksége előtt.
+
+A szobor fenntartása és a hozzá kapcsolódó események segítenek abban, hogy a település közössége megőrizze Petőfi Sándor és az 1848-as forradalom emlékét, és biztosítsák, hogy a jövő generációi számára is megmaradjon a nemzeti identitás és a hősiesség tisztelete.
+
+#### szobor kép:
+![image](https://github.com/user-attachments/assets/6b33aa99-ddf4-4ba7-8851-c4b511aeed35)
+
+
+#### nemezetesség körülötte: Beleznay-Nyáry -kastély, Tabányi Mihály Szülőházának Emléktáblája
+
+Térkép és irány: 
+![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
+
+##### 7 szobor
+####### "Egyszer volt budán kutyavásár"
+
+#######  története:
+A "Egyszer volt Budán kutyavásár" szobor Budapest egyik különleges és szellemes műalkotása, amely a főváros egyik történelmi helyszínén, a Batthyány utca 26. szám alatt található. A szobor a közismert magyar mondásra, „Egyszer volt Budán kutyavásár”, építkezik, amely a régi magyar közmondásokat, valamint a budapesti városi kultúrát idézi meg.
+
+A kifejezés eredeti jelentése arra utal, hogy valamikor Budán, a középkorban, a kutyavásár egy olyan esemény volt, ahol a kutyák adás-vételére került sor. Ez a vásár nemcsak a kutyák, hanem a hozzájuk kapcsolódó piacok és kereskedelmi szokások szimbóluma is volt. Az idő múlásával azonban a mondás jelentése átformálódott, és szólásként használják akkor, amikor a dolgok zűrzavarról, vagy egy rendezetlen helyzetről van szó.
+
+A szobor művészi kifejezése ezen a háttéren alapul, miközben a modern közönség számára egy szórakoztató, ugyanakkor mélyebb gondolatokat is közvetít. A szobor igyekszik megjeleníteni a szellemes és ironikus értelmet, miközben Budán keresztül mesél a múlt és a jelen találkozásáról. A kutyák, mint állatfigura, egyedülálló szimbolikával bírnak, hiszen egyszerre képviselik a házikedvenc és a piaci kereskedelem összefonódását.
+
+A szobor nemcsak vizuálisan figyelemfelkeltő, hanem kultúrtörténeti szempontból is jelentős, hiszen egy olyan elfeledett vásári szokást elevenít meg, amely a középkori Budapest gazdasági életének egyik fontos része volt. A műalkotás egyúttal egy szórakoztató és játékos emlékezés is a régi idők szokásaira, egyfajta történeti lenyomat, amely a látogatót a múltba kalauzolja.
+
+Budapest ezen szobra nem csupán egy művészeti alkotás, hanem egy szellemes társadalmi kommentár is, amely a város sokszínű történelmére és kulturális örökségére hívja fel a figyelmet.
+
+#### szobor kép: 
+![image](https://github.com/user-attachments/assets/9ba43055-7bd0-4eea-a8d4-ebe08d78e7f3)
+
+
+##### nemezetesség körülötte: Abdurrahman pasa síremléke, Magyar Pénzmúzeum és Látogatóközpont
+
+térkép és irány: 
+![2025-02-16](https://github.com/user-attachments/assets/0d479cc0-4d69-4e05-a168-9e6902e5061b)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Források: 
 
 1 https://hu.wikipedia.org/wiki/Sz%C3%A9chenyi_Istv%C3%A1n
