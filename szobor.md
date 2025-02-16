@@ -123,7 +123,7 @@ Ez az emlékmű a hősiesség, a bátorság és a helyi összetartás szimbólum
 #### 6 szobor
 ##### Petőfi szobor
 
-###### története:
+#### története:
 
 A Pilis településén található Petőfi-szobor szintén egy fontos emlékmű, amely a magyar történelem és kultúra egyik legkiemelkedőbb alakját, Petőfi Sándort, a híres költőt és forradalmárt idézi meg. Petőfi Sándor az 1848-as forradalom egyik meghatározó személyisége volt, aki költészetével és politikai szerepvállalásával óriási hatást gyakorolt a magyar nemzet lelki és politikai életére. A Pilisi Petőfi-szobor célja, hogy tisztelegjen előtte és örökítse meg azt a szellemiséget, amit Petőfi képviselt.
 
