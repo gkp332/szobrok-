@@ -202,10 +202,9 @@ A "Szomorú tank" tehát nemcsak egy szobor, hanem egy erőteljes társadalmi ko
 
 6  https://hu.wikipedia.org/wiki/Pet%C5%91fi_S%C3%A1ndor (pilis története könyv)
 
-7 
+7 https://hu.wikipedia.org/wiki/Egyszer_volt_Bud%C3%A1n_kutyav%C3%A1s%C3%A1r
 
-8
-
+8 https://www.kozterkep.hu/31172/szomoru-tank-miniszobra
 
 
 ## térkép Források útvonal: 
@@ -220,6 +219,19 @@ A "Szomorú tank" tehát nemcsak egy szobor, hanem egy erőteljes társadalmi ko
 
 
 4 szobor: ![2025-02-15 (12)](https://github.com/user-attachments/assets/8955aae5-7c98-4d25-a704-18ae6d0f3ace)
+
+
+5 szoboor: ![2025-02-15 (3)](https://github.com/user-attachments/assets/a47e16bd-eabe-4b68-b650-c43aaee30c33)
+
+
+6 szobor: ![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
+
+
+7 szobor: ![2025-02-16](https://github.com/user-attachments/assets/0d479cc0-4d69-4e05-a168-9e6902e5061b)
+
+
+8 szobor: ![2025-02-16 (1)](https://github.com/user-attachments/assets/6b930675-d8eb-4f94-8f8a-ed0be9d1fc8a)
+
 
 
 #### nemezetességek  részletes leírás:
