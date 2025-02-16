@@ -288,6 +288,16 @@ Bár a két emlékhely különböző településekhez kötődik, mindkettő font
 
 7
 
+Abdurrahman pasa síremléke Budapest belvárosában található, a török uralom egy fontos emlékeként. Abdurrahman pasa, aki a 17. században a Budai Vár helytartója volt, síremléke az oszmán kultúra és történelem nyomait őrzi. Az emlékmű az egykori budai mecsetek és oszmán építészet örökségét is bemutatja, és hozzájárul Budapest sokszínű történelmi arculatához, amely a város kulturális gazdagságát tükrözi.
+
+Magyar Pénzmúzeum és Látogatóközpont Budapest szívében található, és interaktív kiállításain keresztül a magyar pénz történelmét és fejlődését mutatja be. A múzeum a pénzverés és bankjegyek világát, valamint a pénzügyi rendszer társadalmi és gazdasági szerepét is bemutatja. Az érdeklődők számos érdekes tárgyat láthatnak, köztük régi érmeket és bankjegyeket, miközben megismerkednek a pénz kultúrtörténetével.
+
+8
+
+Népművészeti Egyesületek Szövetsége Magyarország egyik jelentős kulturális szervezete, amely a hazai népművészetet és hagyományokat őrzi és népszerűsíti. A szövetség célja a hagyományos mesterségek és népi kultúra ápolása, a különböző népművészeti ágak, mint a hímzés, fazekasság, fafaragás és szőttesek népszerűsítése. Az egyesületek közötti együttműködés elősegíti a helyi értékek megőrzését és továbbadását a jövő generációi számára.
+
+Budapesti Történeti Múzeum / Vármúzeum Budapest egyik legismertebb múzeuma, amely a főváros történelmét és kulturális örökségét tárja a látogatók elé. A Vármúzeum a Budai Vár területén található, és a magyar történelem különböző korszakait bemutató kiállításokat kínál. A múzeumban megismerhetjük Budapest fejlődését a középkori időktől kezdve egészen a modern korig, emellett a Vár építészeti értékei is fontos szerepet kapnak.
+
 
 
 
