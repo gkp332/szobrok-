@@ -185,6 +185,8 @@ A "Szomorú tank" tehát nemcsak egy szobor, hanem egy erőteljes társadalmi ko
 ### nemezetesség körülötte: Népművészeti Egyesületek Szövetsége, Budapesti Történeti Múzeum / Vármúzeum
 
 ### térkép és irány: 
+![2025-02-16 (1)](https://github.com/user-attachments/assets/6b930675-d8eb-4f94-8f8a-ed0be9d1fc8a)
+
 
 
 
@@ -408,7 +410,9 @@ A "Szomorú tank" tehát nemcsak egy szobor, hanem egy erőteljes társadalmi ko
 
 
 #### nemezetességek  részletes leírás:
+
 1 
+
 A Ceglédi Magyarok Nagyasszonya Kápolna az egyik legismertebb vallási építmény a városban. Az 1700-as években épült barokk stílusban, és a magyar katolikus hitélet kiemelkedő szereplője. A kápolna nemcsak vallási központ, hanem a magyarok Nagyasszonya, Mária tiszteletére is épült, ami különös vallási jelentőséggel bír. Mária, mint a magyar nemzet védelmezője, mindig is fontos szerepet játszott a magyar nép történelmében, különösen a nehéz időszakokban, mint a török hódoltság vagy az osztrák uralom idején. A kápolna így nemcsak vallási hely, hanem a magyar nemzeti öntudat egyik kifejeződése is.
 
  A Kossuth Múzeum Cegléd másik jelképévé vált, amely a magyar történelem egyik legkiemelkedőbb alakjának, Kossuth Lajosnak az emlékét őrzi. A múzeum egy olyan kulturális központ, ahol Kossuth Lajos életét és politikai munkásságát ismerhetjük meg, valamint betekintést nyerhetünk a magyar szabadságharc eseményeibe. Kossuth, aki 1848–49-ben a magyar függetlenségi harc vezetője volt, az egyik legfontosabb nemzeti hősünk. A múzeum segít abban, hogy a látogatók megértsék a szabadságharc céljait és azokat az eszméket, amelyek Kossuth Lajos életét vezették. Az intézmény nemcsak a politikai történelem fontos emlékhelye, hanem a helyi kultúra és közösségi élet meghatározó része is.
@@ -417,6 +421,7 @@ Mind a Ceglédi Magyarok Nagyasszonya Kápolna, mind a Kossuth Múzeum nemcsak v
 
 
 2
+
 A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
 
 A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
@@ -425,6 +430,7 @@ Bár a két emlékhely különböző településekhez kötődik, mindkettő font
 
 
 3  
+
 A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
 
 A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
