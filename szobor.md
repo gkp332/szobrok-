@@ -145,7 +145,7 @@ Térkép és irány:
 ![2025-02-15 (1)](https://github.com/user-attachments/assets/80e19b72-981f-46ce-a00e-11362db1fca5)
 
 ##### 7 szobor
-####### "Egyszer volt budán kutyavásár"
+### Egyszer volt budán kutyavásár"
 
 #######  története:
 A "Egyszer volt Budán kutyavásár" szobor Budapest egyik különleges és szellemes műalkotása, amely a főváros egyik történelmi helyszínén, a Batthyány utca 26. szám alatt található. A szobor a közismert magyar mondásra, „Egyszer volt Budán kutyavásár”, építkezik, amely a régi magyar közmondásokat, valamint a budapesti városi kultúrát idézi meg.
@@ -369,7 +369,7 @@ térkép és irány:
 
 3 https://hu.wikipedia.org/wiki/Pet%C5%91fi_S%C3%A1ndor (pilis története könyv)
 
-4(pilis története könyv) (nincs lejegyzés)
+4 (pilis története könyv) (nincs lejegyzés)
 
 
 
