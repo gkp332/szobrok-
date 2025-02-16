@@ -299,7 +299,7 @@ Népművészeti Egyesületek Szövetsége Magyarország egyik jelentős kulturá
 Budapesti Történeti Múzeum / Vármúzeum Budapest egyik legismertebb múzeuma, amely a főváros történelmét és kulturális örökségét tárja a látogatók elé. A Vármúzeum a Budai Vár területén található, és a magyar történelem különböző korszakait bemutató kiállításokat kínál. A múzeumban megismerhetjük Budapest fejlődését a középkori időktől kezdve egészen a modern korig, emellett a Vár építészeti értékei is fontos szerepet kapnak.
 
 
-### Prezentáció link: 
+### Prezentáció link: https://prezi.com/p/uaw70wwkyqva/kolodko-szobrok/
 
 
 
