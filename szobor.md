@@ -269,7 +269,26 @@ A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége,
 A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
 
 Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
- 
+
+ 5
+
+ A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
+
+A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
+
+Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
+
+6
+
+A Beleznay-Nyáry-kastély Cegléd egyik legismertebb építészeti öröksége, amely a 18. század végén épült klasszicista stílusban. Az épület a Beleznay és Nyáry családok birtoka volt, és a helyi arisztokrácia központjaként hosszú ideig a társadalmi élet színtere. A kastély nemcsak építészeti értékével, hanem a benne zajló kulturális és társadalmi eseményekkel is hozzájárult Cegléd történetéhez. Az épület műemlékként ma már a helyi közösség és a látogatók számára betekintést nyújt a magyar arisztokrácia életébe és a 18-19. századi magyar építészet remekeibe.
+
+A Tabányi Mihály szülőházának emléktáblája Pilisen található, és tiszteleg a 19. századi magyar matematikus és pedagógus előtt. Tabányi Mihály a magyar tudományos élet egyik jelentős alakja volt, aki matematikai munkásságával és oktatási tevékenységével hozzájárult a magyar tudományos közélet fejlődéséhez. Az emléktábla helyszíne nemcsak a tudós életének tiszteletére szolgál, hanem emlékeztet arra is, hogy Pilis kiemelkedő személyiséget adott a magyar tudományos életnek. A tábla segít megőrizni Tabányi Mihály örökségét, és hangsúlyozza a tudományos munkák fontosságát a település számára.
+
+Bár a két emlékhely különböző településekhez kötődik, mindkettő fontos szerepet játszik a magyar kulturális örökség megőrzésében. A Beleznay-Nyáry-kastély és Tabányi Mihály szülőháza egyaránt hozzájárulnak a magyar történelem és tudományos élet értékeinek átörökítéséhez, miközben emlékeztetnek a helyi közösség identitásának kialakulására és gazdagítására.
+
+7
+
+
 
 
 
