@@ -3,7 +3,7 @@
 
 ![image](https://github.com/user-attachments/assets/1eb166da-825e-42c3-a02e-6967a7ccbe45)
 
-- ukránul: Михайло Іванович Колодко
+- ukránul: Михайло Іванович Колодко cyka
 - latin betűkkel: Mihajlo Ivanovics Kolodko,
 - említik még: Mihail Kolodko, Mykhailo Kolodko neveken is.
 
