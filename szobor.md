@@ -1,3 +1,34 @@
+### Kolodko: Liszt Ferenc miniszobor
+
+## TÖRTÉNETE
+
+Kolodko Mihály ukrán-magyar szobrászművész 2018-ban helyezte el Liszt Ferencet ábrázoló miniszobrát a budapesti Liszt Ferenc Nemzetközi Repülőtéren. A szobor a 2A Terminál közelében, a buszmegállótól kicsit jobbra található.
+A szobor eredetije Ungváron, az Ung folyó sétányán található, és 2012-ben avatták fel Liszt Ferenc 200. születésnapja alkalmából, emléket állítva annak, hogy a zeneszerző az Ungvárhoz közeli Nagylázon barátjánál, Plotényi Nándornál vendégeskedett.
+Kolodko Mihály miniszobrai világszerte megtalálhatók; első ázsiai alkotása is Liszt Ferencet ábrázolja, amely a Szöuli Magyar Kulturális Intézet felkérésére készült, és az UNESCO palota előtt helyezték el.
+
+## KÉP 
+![image](https://github.com/user-attachments/assets/a303389e-a2d1-4c8d-8675-0b6cb299bcb0)
+
+#### Kolodko: Füles miniszobor
+
+#### TÖRTÉNETE 
+
+Kolodko Mihály ukrán-magyar szobrászművész 2023 márciusában helyezte el "Füles" nevű miniszobrát Budapesten, a Művészetek Palotája (Müpa) főbejáratához vezető lépcső korlátján. A szobor egy fejhallgatót ábrázol, amely folyamatosan zenét sugároz; közel hajolva hozzá, a Müpa korábbi fellépőinek műveiből hallgathatunk meg részleteket. 
+A "Füles" szobor a Müpa 18. születésnapja alkalmából készült, és az intézmény zenei profiljára utal. Elhelyezkedése és interaktív jellege miatt gyorsan népszerűvé vált a látogatók körében. 
+
+### KÉP
+![image](https://github.com/user-attachments/assets/e36288f4-f97a-4fb8-b9d4-0dcfb550b482)
+
+### Kolodko: Söröslovak miniszobor
+
+### TÖRTÉNETE
+
+Kolodko Mihály ukrán-magyar szobrászművész 2020 júliusában két miniszobrot helyezett el Budapesten, Kőbányán, a Dreher Sörgyárak megbízásából. Ezek egyike a "Söröslovak" nevű alkotás, amely a sörgyár előtti mészkőhídon található, és két lovat ábrázol, amint söröshordókkal megrakott kocsit húznak. Ez a kompozíció a múlt század elején Budapest utcáin gyakran látott söröskocsik előtt tiszteleg, amelyek a sört szállították a vendéglátóhelyekre. 
+A másik miniszobor a sörgyár területén belül található, és az alapító, idősebb Dreher Antalt ábrázolja sétapálcával a kezében, egy korabeli söröshordón állva. Ez a szobor a gyárlátogatások során tekinthető meg. 
+Kolodko Mihály így nyilatkozott az alkotásokról: "A sörgyár hangulata és története azonnal megérintett, amikor bejárhattam pincétől a padlásig, láttam az Eiffel-iroda által tervezett 'léhűtő' padlást, a 100 éves Zsolnai csempéket, a sörös-lovakat, a százéves hordókat." 
+
+### KÉP
+![image](https://github.com/user-attachments/assets/9b6492ef-e4dd-4a17-b5f8-623b8a952c66)
 
 
 
