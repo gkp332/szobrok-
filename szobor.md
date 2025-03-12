@@ -68,7 +68,18 @@ Kolodko Mihály szobrászművész 2023 májusában új miniszobrot helyezett el 
 A szobor elhelyezése nem véletlen: közelében található egy 2003-ban felállított Lugosi Béla-mellszobor is, amely a híres magyar származású színészt ábrázolja Drakula szerepében. 
 Kolodko Mihály gerillaszobrai gyakran váratlan helyeken bukkannak fel Budapesten, és ez az alkotás is gyorsan népszerűvé vált a helyiek és a turisták körében. A szobor egyedi elhelyezése és humora hozzájárul a város kulturális sokszínűségéhez. 
 
+## KÉP
+![image](https://github.com/user-attachments/assets/d6537f1a-137c-4730-af2d-4133819d3d19)
 
+## Kolodko: Mr. Bean mackója miniszobor
+
+## TÖRTÉNETE
+Kolodko Mihály szobrászművész 2020 novemberében új miniszobrot helyezett el Budapesten, amely Mr. Bean híres mackóját, Teddy-t ábrázolja. A szobor a volt Brit Nagykövetség épületének falán található, az V. kerületi Harmincad utca 6. szám alatt. 
+A Brit Nagykövetség 70 év után, 2017-ben költözött ki ebből az épületből, amely azóta üresen áll. Kolodko szobrát közvetlenül a "Brit Nagykövetség" felirat nyomai alá helyezte el, ezzel is utalva az épület múltjára. 
+A szobor elhelyezése és témája egyszerre tiszteleg a brit kultúra előtt és reflektál az épület történetére, így különleges jelentőséggel bír a város kulturális térképén.
+
+## KÉP
+![image](https://github.com/user-attachments/assets/b0dd048e-eb8e-4648-9687-1d2a5d4c1cd6)
 
 
 
