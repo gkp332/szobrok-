@@ -81,6 +81,24 @@ A szobor elhelyezése és témája egyszerre tiszteleg a brit kultúra előtt é
 ## KÉP
 ![image](https://github.com/user-attachments/assets/b0dd048e-eb8e-4648-9687-1d2a5d4c1cd6)
 
+### ÚTVONALAK
+![2025-03-12 (1)](https://github.com/user-attachments/assets/7be317cf-3b31-4403-8ec7-31657c16c626)
+![2025-03-12 (1)](https://github.com/user-attachments/assets/0d33d83f-7125-481b-8fbf-f43f1e366a19)
+
+## FORRÁSOK
+
+## 1 SZOBOR: ERREARRA.ORG,KOZTERKEP.HU,PAPAGENO.HU
+## 2 SZOBOR: WELOVEBUDAPEST.COM,KOZTERKEP.HU  
+## 3 SZOBOR: KOZTERKEP.HU
+## 4 SZOBOR: HVG,FIDELIO.HU,SZALLAS.HU
+## 5 SZOBOR: WELOVEBUDAPEST.COM,KOZTERKEP.HU,BUDAPESTFLOW.COM,
+## 6 SZOBOR: FIDELIO.HU,KOZTERKEP.HU,THATCH.CO
+## 7 SZOBOR: 24.HU,BUDAPESTFLOW.COM,ERREARRA.ORG
+## 8 SZOBOR:WELOVEBUDAPEST.COM,ERREARRA.ORG,
+
+
+
+
 
 
 
