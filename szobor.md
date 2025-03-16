@@ -96,6 +96,7 @@ A szobor elhelyezése és témája egyszerre tiszteleg a brit kultúra előtt é
 ## 7 SZOBOR: 24.HU,BUDAPESTFLOW.COM,ERREARRA.ORG
 ## 8 SZOBOR: WELOVEBUDAPEST.COM,ERREARRA.ORG,
 
+ ### PEREZI LINK: 
 
 
 
